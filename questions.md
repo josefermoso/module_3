@@ -1,0 +1,1 @@
+Is this feature available for free pricing acounts?
